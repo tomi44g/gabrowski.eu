@@ -1,4 +1,4 @@
-# Domena gabrowski.eu
+# Zapraszamy do odwiedzenia:
 
-* [Marian](marian.gabrowski.eu)
-* [Tomek](thomas.gabrowski.eu)
+* [Marian](http://marian.gabrowski.eu)
+* [Tomek](http://thomas.gabrowski.eu)
